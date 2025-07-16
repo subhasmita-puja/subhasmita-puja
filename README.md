@@ -3,7 +3,6 @@
 
 Email Me 👉 ✉️ **subhasmita4602@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** Enter your project info here
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** subhasmita4602@gmail.com
 - 😄 **Pronouns:** Subhasmita Sahoo
